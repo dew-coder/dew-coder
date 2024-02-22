@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **deewbansal@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GWTDU8o-W-m42WzjcVA8SUcvNE9ND8zz/view?usp=sharing](https://drive.google.com/file/d/1GWTDU8o-W-m42WzjcVA8SUcvNE9ND8zz/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ohs6CkLLxo_XBtVeeR_ud-ZHIDSzSKfI/view?usp=sharing](https://drive.google.com/file/d/1ohs6CkLLxo_XBtVeeR_ud-ZHIDSzSKfI/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
